@@ -2,5 +2,5 @@
 This test version BitcoinPieta..
 please check it agian and give us feedback
 
-Where is the block number?
-20 days and no reply
+We apologize for being late. There is great pressure on our team. During those next few days your block number will be released.
+Technology BlockChain Team.
