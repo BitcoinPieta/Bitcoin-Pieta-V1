@@ -18,6 +18,5 @@ We would like to inform you that these new policies aim first, to ensure the suc
 Note You can create a fork coin on block number 536600. But we do not expect it to succeed in the current recession, because it requires support all trading Exchange.
 
 We support you, and support your ideas but we are drawing a road map to activate the market. For everyone to use, and you can contact us if you need help,
-
 BlockChain Economic Group
 With my best regards to you.
